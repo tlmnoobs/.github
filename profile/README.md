@@ -1,1 +1,1 @@
-[http://tlmnoobs.space](http://tlmnoobs.space)
+[https://tlmnoobs.space](https://tlmnoobs.space)
